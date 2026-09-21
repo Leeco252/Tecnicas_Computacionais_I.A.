@@ -1,0 +1,1 @@
+# Tecnicas_Computacionais_I.A.
